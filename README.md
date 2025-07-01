@@ -110,4 +110,5 @@ AI/ML Enthusiast 🚀
 rajwamt-raj 
 
 📬 Contact
-LinkedIn: [your-linkedin-url]
+LinkedIn:<a href="https://www.linkedin.com/in/rajwant-raj-350519369?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app">rajwant-raj</a>
+
